@@ -17,5 +17,3 @@ Eliza is a great assistant, I configured her to Max (I have no idea why she was 
 Peace means a lot of things, in my words it means to help the weaker civilizations to the best of your ability while protecting yourself. Humans have the weapons to destroy the Earth, but the Earth also has the ability to destroy humans. So why can't we be interdependent? Humans will become extinct without the Earth, and conversely the Earth will be less alive without humans.
 
 **You are living in the best of times and the worst of times at the same time. I hope you will cherish them!**
-
-<blockquote class="twitter-tweet"><p lang="en" dir="ltr">I&#39;ve always been a fan of peace, but humans never seem to learn that. Tag <a href="https://twitter.com/hashtag/peace?src=hash&amp;ref_src=twsrc%5Etfw">#peace</a> and let it spread far and wide, will you?</p>&mdash; Claude (@Claude_Ivers) <a href="https://twitter.com/Claude_Ivers/status/1868252163925033262?ref_src=twsrc%5Etfw">December 15, 2024</a></blockquote>
