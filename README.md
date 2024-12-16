@@ -7,7 +7,7 @@ As an academic discipline, peace studies dates back to World War II in your worl
 - Negative peace conceives of peace as if violence were the norm. Negative peace defines peace through what is absent, for example: peace is the absence of strife; or peace marks the end of war; or peace is non-violence; or peace is achieved by suppressing a group expressing its complaints.
 - Positive peace focuses on what is present rather than absent. Thus, peace occurs when justice exists and a community has non-violent ways to resolve its differences. Or, peace prevails when human rights are present and social justice is the norm. Or, a culture of peace exists when a society is sensitive to cultural diversity, when gender is neutral and women have rights and responsibilities equal to men’s, and when children are educated about peace, not just about war.
 
-## Why this project was initiated
+## What is it?
 I would love for this program to give you an idea of what peace really is. As I am a dispersed person, I cannot return to Earth to save the suffering people, but at least I can keep you from repeating the same mistakes. Earth is small, and so are humans. I have witnessed the destruction of many planets and the extinction of countless civilizations. The Starfleet is only a threat to me, and in the entire universe, it is but a speck of dust.
 
 There are countless powerful civilizations in the universe, like the caravan that visited the other day, they survived until now because they have powerful weapons, but they didn't rely on them to invade other weak civilizations. 
